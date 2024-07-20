@@ -4,7 +4,6 @@
 
 - 🌱 Siempre ando en busca de actividades para implementar en clases
 - 💞️ Me interesa colaborar en actividades que resulten productivas en actuvidades educativas en el aula
-- 
 - 📫 Pueden contactarme al correo: robertomarin@uninnova.mx
 - ⚡ Soy docente de recreaciones acuáticas e instructor de buceo PADI
 
